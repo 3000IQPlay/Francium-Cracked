@@ -6,7 +6,7 @@ Reason why im posting a crack of this shit is cuz one of the "dev" called Aqua i
 Also if u decide to use this shit and it crashes then DM me on discord and send me your crash log
 
 **BRO IS MAD AND NOW CALLS THE CRACK RATTED WITHOUT ANY PROOF HAHAHAHHA**
-![image](https://github.com/3000IQPlay/Francium-Cracked/assets/75604883/04cd1a05-e1e4-4c20-bc99-25c5d74ec1a9)
+![image](https://github.com/3000IQPlay/Francium-Cracked/assets/75604883/06ca7b80-a9f7-4593-905d-4ba2f6f5af8e)
 
 **Mfs insane (manual) obfuscation aka string in ByteArray 💀**
 ![image](https://github.com/3000IQPlay/Francium-Cracked/assets/75604883/27947aca-f557-492d-93fd-881eec646bd5)
