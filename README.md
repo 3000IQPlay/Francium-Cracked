@@ -1,7 +1,7 @@
 # Francium-Cracked
 If u already dont know what Francium is its a paid goofy ahh skidded CW Shit that is selling for $15.00 (1.19.2 Fabric)
 
-Reason why im posting a crack of this shit is cuz one of the "dev" called Aqua is banning everyone from their disc. server that offends someone that has paid for the client or other randos. Since Aqua is acting retarded and fans Pathaos each second i decided to reverse his manually obfuscated client and DDoS his goofy ahh website until it crashed ->  http://31.220.80.176:1337/hwid
+Reason why im posting a crack of this shit is cuz one of the "dev" called Aqua is banning everyone from their disc. server that offends someone that has paid for the client or other randos that have higher position on the discord server. Since Aqua is acting retarded and fans Pathaos each second i decided to reverse his manually obfuscated client and DDoS his goofy ahh website until it crashed ->  http://31.220.80.176:1337/hwid
 
 Also if u decide to use this shit and it crashes then DM me on discord and send me your crash log
 
