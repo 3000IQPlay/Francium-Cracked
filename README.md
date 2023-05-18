@@ -8,8 +8,8 @@ Also if u decide to use this shit and it crashes then DM me on discord and send 
 **BRO IS MAD AND NOW CALLS THE CRACK RATTED WITHOUT ANY PROOF HAHAHAHHA**
 ![image](https://github.com/3000IQPlay/Francium-Cracked/assets/75604883/06ca7b80-a9f7-4593-905d-4ba2f6f5af8e)
 
-**Mfs insane (manual) obfuscation aka string in ByteArray 💀**
+**Mfs insane (manual) string encryption using ByteArray 💀**
 ![image](https://github.com/3000IQPlay/Francium-Cracked/assets/75604883/27947aca-f557-492d-93fd-881eec646bd5)
 
-**Aqua even manually obfuscates CWs Packages 💀 (He needs some help)**
+**Pycat being autistic 💀**
 ![image](https://github.com/3000IQPlay/Francium-Cracked/assets/75604883/a482c62a-a517-4b48-a307-244c933f5d7f)
