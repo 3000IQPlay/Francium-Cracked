@@ -6,6 +6,7 @@ Reason why im posting a crack of this shit is cuz one of the "dev" called Aqua i
 Also if u decide to use this shit and it crashes then DM me on discord and send me your crash log
 
 Credits: *annonymous* - Francium jar
+
           elpapu#6149 - Nuked francium disc. server
 
 **BRO IS MAD AND NOW CALLS THE CRACK RATTED WITHOUT ANY PROOF HAHAHAHHA**
