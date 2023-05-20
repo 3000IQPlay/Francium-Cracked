@@ -7,6 +7,7 @@ Also if u decide to use this shit and it crashes then DM me on discord and send 
 
 ```
 Credits:  annonymous - Francium jar
+          _3000IQPlay#8278 - Cracking
           elpapu#6149 - Nuked francium disc. server
 ```
 
