@@ -1,5 +1,5 @@
 # Francium-Cracked
-**MAKE SURE TO JOIN: https://discord.com/invite/84J4mhnS35**
+**MAKE SURE TO JOIN: https://discord.com/invite/A9XhxPDzex**
 
 If u already dont know what Francium is its a paid goofy ahh skidded CW Shit that is selling for $15.00 (1.19.2 Fabric)
 
