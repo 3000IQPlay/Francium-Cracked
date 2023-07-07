@@ -9,7 +9,7 @@ Also if u decide to use this sh1t and it crashes then DM me on discord and send 
 
 ```
 Credits:  annonymous - Francium jar
-          _3000IQPlay#8278 - Cracking
+          _3000iqplayalt - Cracking
           elpapu#6149 - Nuked francium disc. server
 ```
 
