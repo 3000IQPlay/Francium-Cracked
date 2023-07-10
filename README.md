@@ -1,4 +1,4 @@
-# Francium-Cracked
+![image](https://github.com/3000IQPlay/Francium-Cracked/assets/75604883/ceabca27-e31a-458f-b6db-da846c4eceb1)# Francium-Cracked
 **MAKE SURE TO JOIN: https://discord.com/invite/A9XhxPDzex**
 
 If u already dont know what Francium is its a paid goofy ahh skidded CW Shit that is selling for $15.00 (1.19.2 Fabric)
@@ -12,6 +12,10 @@ Credits:  annonymous - Francium jar
           _3000iqplayalt - Cracking
           elpapu#6149 - Nuked francium disc. server
 ```
+```
+GUI Bind: RCtrl
+```
+
 
 **BRO IS MAD AND NOW CALLS THE CRACK RATTED WITHOUT ANY PROOF HAHAHAHHA**
 ![image](https://github.com/3000IQPlay/Francium-Cracked/assets/75604883/06ca7b80-a9f7-4593-905d-4ba2f6f5af8e)
