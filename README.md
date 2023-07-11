@@ -1,4 +1,4 @@
-![image](https://github.com/3000IQPlay/Francium-Cracked/assets/75604883/ceabca27-e31a-458f-b6db-da846c4eceb1)# Francium-Cracked
+# Francium-Cracked
 **MAKE SURE TO JOIN: https://discord.com/invite/A9XhxPDzex**
 
 If u already dont know what Francium is its a paid goofy ahh skidded CW Shit that is selling for $15.00 (1.19.2 Fabric)
